@@ -10,4 +10,4 @@
 
 这些链接为您提供了多样化的内容，包括欧美精品、日韩乱码视频等资源，直接为您带来最优质的观看体验。无需繁琐的设置，您可以享受流畅的在线观看视频服务。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/mt20250709/mt16 ）</span>
